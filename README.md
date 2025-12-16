@@ -1,4 +1,3 @@
 ##### <p align="center"> <img src="https://github.com/tsutomukuroya" height="800" />
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cohd4mwlt5dlzf7tujn7brxv34&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&bar_color_cover=false&bar_color=454545)](https://github.com/kittinan/spotify-github-profile)
-
-https://co.pinterest.com/pin/72831718973400503/
+![emoji](https://github.com/user-attachments/assets/caadfa0e-45b9-4273-a161-c416c53dd313)
