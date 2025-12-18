@@ -3,4 +3,5 @@
 
 -----
 *HI HIII GOSHIKI HII OMG HIII HELLO OMG HEYYYY*
-![Tsutomu is backkkkkkkk (1)](https://github.com/user-attachments/assets/c5715762-c8af-41f7-afc6-7b9acff164f9)
+<p align="center"> <img src="https://github.com/tsutomukuroya" height="400" />
+  ![Tsutomu is backkkkkkkk (1)](https://github.com/user-attachments/assets/c5715762-c8af-41f7-afc6-7b9acff164f9)
