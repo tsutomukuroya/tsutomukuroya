@@ -1,1 +1,1 @@
-<img width="300" height="350" alt="gishsuki-removebg-preview" src="https://github.com/user-attachments/assets/0bcb6568-1c5d-4bb1-99d4-e25df35e771d" />
+<img width="319" height="495" alt="gishsuki-removebg-preview" src="https://github.com/user-attachments/assets/9840ee64-6cb7-49c2-a0d6-1766277b1c5a" />
