@@ -1,3 +1,4 @@
-<img width="319" height="495" alt="gishsuki-removebg-preview" src="https://github.com/user-attachments/assets/9840ee64-6cb7-49c2-a0d6-1766277b1c5a" />     
-  
-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎[atabook](https://anonwashere.atabook.org/) ⟡ [strawpag](https://ankus.straw.page/) ⟡[pronon pag](https://pronouns.cc/@Anon/)
+![sybau goshiki](https://github.com/user-attachments/assets/8c4404f5-762d-4e4e-a7a3-59119e2bffdd)
+
+
+[atabook](https://anonwashere.atabook.org/) ⟡ [strawpag](https://ankus.straw.page/) ⟡ [pronon pag](https://pronouns.cc/@Anon) 
