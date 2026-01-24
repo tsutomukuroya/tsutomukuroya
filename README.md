@@ -2,4 +2,4 @@
 
 
 [atabook](https://anonwashere.atabook.org/) ⟡ [strawpag](https://ankus.straw.page/) ⟡ [pronon pag](https://pronouns.cc/@Anon) ⟡ [wip strawpag](https://tsutomugoshiki.straw.page)
-strawpage will be a wip forever BECAUSE FUCKING STUPID ASS RETARDED STRAWPAGE WONT LET ME SCROLL DOWN IN EDITOR AS MUCH AS I TRY IT someone help guys i rlly want to finish that
+it fixed !! wip guya
